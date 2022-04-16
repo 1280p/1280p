@@ -1,1 +1,3 @@
-- 🚣‍♀️ 
+- 🚣‍♀️ she/her 
+- 🥺 i like joker
+- 🥄 i like bread
